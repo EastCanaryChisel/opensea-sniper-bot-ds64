@@ -1,4 +1,4 @@
-# 
+# high-frequency opensea sniper bot | volume-analysis + take-profit offers the most advanced opensea sniper bot, with volume-analysis and take-profit. Ideal for professional NFT
 
 
 
